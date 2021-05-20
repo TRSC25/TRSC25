@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TRSC25
+- 👀 I’m interested in Computers
+- 🌱 I’m currently learning programming languages
+- 📫 How to reach me:- fakemanwhodoesnotexist@gmail.com | YT homepage |
